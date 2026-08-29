@@ -1,0 +1,3 @@
+Nothing reached me. No file came with this message — the uploads directory is empty — and there's no HTML anywhere in this conversation to quote.
+
+I also checked past chats for "counterculture," "90s kid," and an HTML test page: no match. The nearest things are a May chat on Jamiroquai lore that trails off at "I'm toying with an idea…" with no HTML in it, and the Aug 27 [expense-tracker](/personal-finance) web app, which is unrelated. So I'm not sitting on anything; whatever page you're thinking of — a file, a link, a pasted block — didn't land here, and I won't reconstruct one from the description.
